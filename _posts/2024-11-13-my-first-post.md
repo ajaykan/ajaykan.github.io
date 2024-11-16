@@ -1,10 +1,10 @@
----
+<!-- ---
 layout: post
 title: "My First Blog Post"
 date: 2024-11-13
 categories: [blog]
 tags: [introduction, jekyll]
----
+--- -->
 
 Welcome to my first post! This is where I’ll write about my experiences using Jekyll for blogging.
 
