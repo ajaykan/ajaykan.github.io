@@ -14,7 +14,7 @@ Long term thinking has actually hindered my growth. Our world is too complicated
 
 The key is to exploit heavily. You’ve just discovered this new path. Maybe it’s a career path, business opportunity, or workout routine. Concentrate efforts. Exploit greedily while you have the fire. That’s what makes this algorithm effective: swift and abundant results. Let’s say you’ve answered the previous questions. They’ve given you some kind of direction. Don’t approach it with the same hesitation marking all your previous actions. The beauty of this philosophy is a sheer lack of commitment. Your current iteration is designed to end. So you’re free to explore to your heart’s content, then pass it off for a better opportunity.
 
-A greedy approach to life is liberating. We’re acknowledging that we can’t fully understand our actions’ consequences. As a result, we prioritize what we think is correct right now, and allow this experience to refine our future decision-making ability.
+A greedy approach to life is liberating. We’re acknowledging that we can’t fully understand our actions’ consequences. As a result, we prioritize what we think is correct *right now*, and allow this experience to refine our future decision-making ability.
 
 This is not an excuse to unrestrained hedonism. Such a mindset is actually antithetical to this philosophy. Unabashed pleasure actually make everyday life less enjoyable, thereby completely opposing my proposed greedy approach to life. 
 
